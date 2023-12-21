@@ -13,3 +13,5 @@
 
 Yes! 𝐖𝐞𝐂𝐡𝐞𝐚𝐭 are developed and tested by our community of millions around the world.
 
+![2](https://github.com/WWballs/DBD-Menu/assets/132029401/7ae80db9-bea7-4c6d-8451-9855b5e64ed8)
+![3](https://github.com/WWballs/DBD-Menu/assets/132029401/62f89736-23a8-4fd2-839e-6d2bb2dd6a87)
